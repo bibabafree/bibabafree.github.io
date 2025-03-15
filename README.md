@@ -29,27 +29,18 @@
 
 ## 更多clash节点订阅 ：
 
-
-### 高速机场推荐1【<a href="https://www.nfsq.us/#/register?code=UTg5SIHV" target="_blank">农夫山泉</a>】
-
-- 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
-- 网站注册地址：【<a href="https://www.nfsq.us/#/register?code=UTg5SIHV" target="_blank">农夫山泉（点击注册）</a>】
-
-
-
-### 高速机场推荐2【<a href="https://11008866.xyz/#/register?code=nRx0UI5X" target="_blank">星辰VPN</a>】
+### 高速机场推荐1【<a href="https://11008866.xyz/#/register?code=nRx0UI5X" target="_blank">星辰VPN</a>】
 
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://11008866.xyz/#/register?code=nRx0UI5X" target="_blank">星辰VPN（点击注册）</a>】
 
-
-### 高速机场推荐3【<a href="https://goudan.site/#/register?code=GOJk7iwk" target="_blank">西游云</a>】
+### 高速机场推荐2【<a href="https://goudan.site/#/register?code=GOJk7iwk" target="_blank">西游云</a>】
 
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://goudan.site/#/register?code=GOJk7iwk" target="_blank">西游云（点击注册）</a>】
 
 
-### 高速机场推荐4【<a href="https://login.dg5.biz/#/register?code=G6yPcu5e" target="_blank">狗狗加速</a>】
+### 高速机场推荐3【<a href="https://login.dg5.biz/#/register?code=G6yPcu5e" target="_blank">狗狗加速</a>】
 
 - 狗狗加速作为第一家上线Hysteria1协议的机场，目前已经全面上线Hysteria2协议；不同于hy1，hy2全面优化了链接速度(0-RTT)，进一步降低延迟；同时使用全新的带宽控制方式；能发挥您带宽的最大潜能！全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
 - 网站注册地址：【<a href="https://login.dg5.biz/#/register?code=G6yPcu5e" target="_blank">狗狗加速（点击注册）</a>】
