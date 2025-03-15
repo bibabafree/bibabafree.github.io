@@ -1,4 +1,4 @@
-# 推荐机场 | 3月14日20.3M/S|免费VPN/V2ray/SSR/Shadowrocket/Clash免费节点链接地址  更新时间 2025-03-14 07:21:12
+# 优质机场 | 3月14日20.3M/S|免费VPN/V2ray/SSR/Shadowrocket/Clash免费节点链接地址  更新时间 2025-03-14 07:21:12
 所有免费clash节点都爬取自网络，请勿用于非法用途 。节点地址：<a href="https://bibabafree.github.io" target="_blank">点击跳转</a>
 
 ## clash使用教程：
