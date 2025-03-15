@@ -3,7 +3,7 @@
 
 ## clash使用教程：
 
-<a href="https://www.freeclashnode.com/client/" target="_blank">科学上网详细教程</a>
+[科学上网详细教程](https://bibabafree.github.io/)
 
 ## 订阅链接：
 
