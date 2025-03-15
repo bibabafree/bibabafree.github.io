@@ -37,16 +37,16 @@
 
 
 
-### 高速机场推荐2【<a href="https://11008866.xyz/#/register?code=6KO4Fpse" target="_blank">星辰VPN</a>】
+### 高速机场推荐2【<a href="https://11008866.xyz/#/register?code=nRx0UI5X" target="_blank">星辰VPN</a>】
 
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
-- 网站注册地址：【<a href="https://11008866.xyz/#/register?code=6KO4Fpse" target="_blank">星辰VPN（点击注册）</a>】
+- 网站注册地址：【<a href="https://11008866.xyz/#/register?code=nRx0UI5X" target="_blank">星辰VPN（点击注册）</a>】
 
 
-### 高速机场推荐3【<a href="https://goudan.site/#/register?code=7WiPAwPs" target="_blank">西游云</a>】
+### 高速机场推荐3【<a href="https://goudan.site/#/register?code=GOJk7iwk" target="_blank">西游云</a>】
 
 - 无视高峰，全天4K秒开，机房遍布全球，IP多多益善，99%流媒体解锁，油管、葫芦、奈菲，小电影丝般顺滑！ IPLC、IEPL中转，点对点专线连接。高速冲浪，科学上网不二选择，现在注册即可免费试用！
-- 网站注册地址：【<a href="https://goudan.site/#/register?code=7WiPAwPs" target="_blank">西游云（点击注册）</a>】
+- 网站注册地址：【<a href="https://goudan.site/#/register?code=GOJk7iwk" target="_blank">西游云（点击注册）</a>】
 
 
 ### 高速机场推荐4【<a href="https://login.dg5.biz/#/register?code=G6yPcu5e" target="_blank">狗狗加速</a>】
